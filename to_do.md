@@ -1,0 +1,4 @@
+- Farming set up in Brazil
+- Dapp Lab, Igarata Labs decentralised incubator in Brazil x Dubai Incubator
+- DigitalTwin x Ootopia
+- Aligning on Finance
